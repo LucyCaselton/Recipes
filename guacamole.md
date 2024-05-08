@@ -3,6 +3,6 @@
 ## Ingredients
 - Avo
 - Oil
-- Lemon
+- Lime
 
 ## Method
