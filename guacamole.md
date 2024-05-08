@@ -6,5 +6,4 @@
 - Lime
 
 ## Method
-hahahahaaaaaa beat you! even though I didn't
-Cut up your avocados
+- Cut up your OWN avocados!
